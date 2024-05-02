@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shivani9508
 - 👀 I’m interested in Analyst role.
-- 🌱 I’m currently practising my skills in Power BI, SQl and Advanced Excel.
+- 🌱 I’m  skilled in Power BI, SQl and Advanced Excel,client communciation & team handling.
 - 📫 How to reach me shiviaka@gmail.com
 - ⚡ Fun fact:Foodie by heart !
 
